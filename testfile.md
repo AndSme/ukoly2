@@ -1,1 +1,1 @@
-testujem ukoly2 priecinok
+testujem ukoly2 priecinok!
